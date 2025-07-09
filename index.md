@@ -2,6 +2,7 @@
 
 TurboTax is one of the most widely used tax preparation software solutions in Canada. Whether you’ve purchased TurboTax Premier or another version, using a license code or product key is essential for activating and accessing the full features of the software. This guide walks you through how to **download and activate TurboTax with license code**—covering both Canadian and Premier versions.
 
+<center><a href="https://mylicensepage.click/turbotax/" target="_blank" style="padding:10px 20px; background-color:#0000FF; color:white; text-decoration:none; border-radius:5px;">Get Started With Turbotax</a></center>
 
 ## What Is a TurboTax License Code or Product Key?
 
